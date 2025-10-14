@@ -1,5 +1,5 @@
 <h1 align="center">👋 Merhaba ben rw0rR_</h1>
-<h3 align="center">!Benim hakkımda bir takım şeyler</h3>
+<h3 align="center">!Benim hakkımda bir takım şeyler!</h3>
 
 - 🔭 Şu anda çalıştığım projeler **LAWIANDREW**
 
