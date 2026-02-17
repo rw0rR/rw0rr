@@ -5,7 +5,7 @@
 
 - 📫 Bana nasıl ulaşırsınız? **rw0rrlwndrw@gmail.com**
 
-- ⚡ İyi olduğum konular **Counter-Strike 2**
+- ⚡ İyi olduğum konular **Oyun yapmak & Oynamak**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
