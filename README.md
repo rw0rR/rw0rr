@@ -5,7 +5,7 @@
 
 - 📫 Bana nasıl ulaşırsınız? **rw0rrlwndrw@gmail.com**
 
-- ⚡ İyi olduğum konular **Oyun yapmak & Oynamak**
+- ⚡ İyi olduğum konular **Oyun Oynamak & Yapmak**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
